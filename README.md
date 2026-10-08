@@ -4,5 +4,4 @@ This addon has received several criticisms
 for being a skid, but I really don't care.
 
 
-Versión 1.21.5: 
-https://discord.gg/rUqUag3WW4
+Oficial discord for download 1.21.11 & 1.21.5: 
