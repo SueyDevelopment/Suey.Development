@@ -5,4 +5,4 @@ for being a skid, but I really don't care.
 
 
 Oficial discord for download 1.21.11 & 1.21.5: 
-https://discord.gg/rUqUag3WW4
+https://discord.gg/yjta5MeYWk
